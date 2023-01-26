@@ -1,6 +1,6 @@
 ### Hi there  eu me chamo Dani  😊
 
-✏️ - Atualmente estudando Ciencias de 
+✏️ - Atualmente estudando Ciencias de Dados
 
 🏢  - Estácio: Graduação e Pós Graduação Digital (EAD) e Presencial
 
